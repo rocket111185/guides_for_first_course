@@ -19,6 +19,10 @@ https://telegra.ph/CHto-vzyat-v-obshchezhitie-08-22
 
 ## Трохи по преподам
 
+### Боднарчук Semen Володимирович
+
+https://telegra.ph/Bodnarchuk-Semyon-Vladimirovich-09-16
+
 ### Шемсединов Тимур Гафарович
 З приводу сесії:
 
