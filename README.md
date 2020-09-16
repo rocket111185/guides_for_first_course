@@ -5,7 +5,7 @@
 
 Гайд від Віки:
 
-https://telegra.ph/CHo-po-prepodam-%D1%96-navchannyu-09-12
+https://telegra.ph/Gajd-dlya-%D0%86P-04-09-12
 
 Установити Linux без смс, реєстрації та геморою:
 
@@ -18,7 +18,7 @@ http://studway.com.ua/gurtozhitok-nepisani-pravila-carski/
 https://telegra.ph/CHto-vzyat-v-obshchezhitie-08-22
 
 ## Трохи по преподам
-Попередньо прочитайте гайд від Віки
+
 ### Шемсединов Тимур Гафарович
 З приводу сесії:
 
